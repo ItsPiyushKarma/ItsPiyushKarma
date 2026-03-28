@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔐 Just a cybersecurity student trying to break systems… legally 😎
+🔐 Just a cybersecurity student trying to break systems… legally 😎/n
 💻 Into Digital Forensics, Cloud & Network Security
 🚀 Working towards becoming a Cybersecurity Pro
 
